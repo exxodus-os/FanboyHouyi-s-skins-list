@@ -1,6 +1,5 @@
 # Fanboyhouyi skin list
-! If any of the links broken lmk
-some of the skins maybe unlisted or private
+If any of the links broken let me know, some of the skins maybe unlisted or private
 
 # [- JesusOmega {NM} 『Planets』 -](https://www.mediafire.com/file/a66wxrz7pv470d4/-_JesusOmega_%257BNM%257D_%25E3%2580%258EPlanets%25E3%2580%258F_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2020-07/1594283495_4.jpg)
@@ -20,4 +19,4 @@ some of the skins maybe unlisted or private
 # [ WhiteCat 2.0 (CK) ](https://www.mediafire.com/file/j034hvutkodbwsz/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.0_%257E_new.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2021-03/1616523565_screenshot9735.jpg)
 
-# all the skin will be updated soon
+all the skin will be updated
