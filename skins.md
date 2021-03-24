@@ -13,7 +13,7 @@
 # [ Freedie edit ](https://drive.google.com/file/d/1ensNTJg9HJ-o1OSekCDl6ElWMylW-x3u/view)
 ![](https://cdn.discordapp.com/attachments/761273576757133353/819460135562641408/unknown.png)
 
-# [  - # re;owoTuna v1.1 『Selyu』 # - ](https://www.mediafire.com/file/10yv0iwzd9vn7zh/-_%2523_re%253BowoTuna_v1.1_%2  5E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
+# [  - # re;owoTuna v1.1 『Selyu』 # - ](https://www.mediafire.com/file/10yv0iwzd9vn7zh/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
 
 # [ mathi ensalada v1.5 (Blue cursor) ](https://www.mediafire.com/file/5okhdqiooa12mit/mathi_ensalada_v1.5_%2528Blue_cursor%2529.osk/file)
