@@ -19,4 +19,7 @@ If any of the links broken let me know, some of the skins maybe unlisted or priv
 # [ WhiteCat 2.0 (CK) primary ](https://www.mediafire.com/file/j034hvutkodbwsz/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.0_%257E_new.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2021-03/1616523565_screenshot9735.jpg)
 
+# [ dokidokilolixx 2018-06-10 ](https://osuskins.net/skin/KH69gJk)
+![](https://osuskins.net/screenshots/KH69gJk.jpg)
+
 all the skin will be updated
