@@ -26,4 +26,10 @@ If any of the links broken let me know, some of the skins maybe unlisted or priv
 # [ dokidokilolixx 2018-06-10 ](https://osuskins.net/skin/KH69gJk)
 ![](https://osuskins.net/screenshots/KH69gJk.jpg)
 
+# [ Azer 2018-06-03 azer8dusk ](https://osuskins.net/skin/kQv6lBQ/)
+![](https://osuskins.net/screenshots/kQv6lBQ.jpg)
+
+
+
+
 all the skin will be updated
