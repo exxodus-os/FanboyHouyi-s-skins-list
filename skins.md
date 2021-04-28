@@ -32,6 +32,8 @@ If any of the links broken let me know, some of the skins maybe unlisted or priv
 # [ MonkoEdit ](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
 
+# [ idke 1.2 without sliderendcircle ](https://www.mediafire.com/file/fyj6cxixixi14ze/idke_1.2_without_sliderendcircle.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-04/1554353332_screenshot3560.jpg)
 
 
 all the skin will be updated
