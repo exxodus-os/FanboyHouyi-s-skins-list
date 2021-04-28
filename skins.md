@@ -29,6 +29,8 @@ If any of the links broken let me know, some of the skins maybe unlisted or priv
 # [ Azer 2018-06-03 azer8dusk ](https://osuskins.net/skin/kQv6lBQ/)
 ![](https://osuskins.net/screenshots/kQv6lBQ.jpg)
 
+# [ MonkoEdit ](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
+![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
 
 
 
